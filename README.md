@@ -14,11 +14,15 @@
 - working with children
 - hiking
 - sports
-- Mayo (Insta: mayoistleben)
+- Mayo (Insta: @mayoistleben)
 
 **Things i do not like yet**
 - finishing projects
 
 **Hobbies**
-- ⛺ scouting (Insta: vitusscout_oedt)
+- ⛺ scouting (Insta: @vitusscout_oedt)
 - 🏀 Basketball
+
+**finde me on**
+- Xing https://www.xing.com/profile/Henning_Loch2
+- Insta @henloc
